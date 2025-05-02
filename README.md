@@ -2,6 +2,12 @@
 
 CHARACTERS I LIKE!! HEHA ( CRK Mainly )
 
+Silent Salt Cookie
+
+Eternal Sugar cookie
+
+Hollyberry Cookie
+
 Pure Vanilla
 
 SMC
@@ -21,8 +27,6 @@ Elder Faerie Cookie
 Candy Apple Cookie
 
 Fig Cookie
-
-Silent Salt cookie
 
 Fire spirit cookie
 
