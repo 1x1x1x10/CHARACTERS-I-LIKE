@@ -2,9 +2,11 @@
 
 CHARACTERS I LIKE!! HEHA ( CRK Mainly )
 
-Silent Salt Cookie
+Wind Archer Cookie
 
-Eternal Sugar cookie
+Fire Spirit cookie
+
+Silent Salt Cookie
 
 Hollyberry Cookie
 
@@ -28,8 +30,7 @@ Candy Apple Cookie
 
 Fig Cookie
 
-Fire spirit cookie
-
+Eternal sugar cookie
 
 John Nolan ( The Rookie )
 
