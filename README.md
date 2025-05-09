@@ -4,6 +4,8 @@ CHARACTERS I LIKE!! HEHA ( CRK Mainly )
 
 Wind Archer Cookie
 
+Burnt Cheese Cookie
+
 Fire Spirit cookie
 
 Silent Salt Cookie
