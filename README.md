@@ -2,7 +2,15 @@
 
 CHARACTERS I LIKE!! HEHA ( CRK Mainly )
 
+Chance
+
 Wind Archer Cookie
+
+CoolKidd
+
+Elliot
+
+Mafioso
 
 Caramel Arrow cookie
 
