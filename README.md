@@ -1,26 +1,34 @@
 # CHARACTERS-I-LIKE
 
-CHARACTERS I LIKE!! HEHA ( CRK Mainly )
+🂱 🃜 🃚 🃖 🃁 🂭 🂺
 
-Chance
+˖ ࣪⊹ ִ┈┈┈┈ ♰ ┈┈┈┈ ⊹ ִֶָ𓂅
 
-Wind Archer Cookie
+♰ ; heavily hyperfixating over
 
-CoolKidd
+alot of characters will not have a cross beside it
 
-Elliot
+˖ ࣪⊹ ִ┈┈┈┈ ♰ ┈┈┈┈ ⊹ ִֶָ𓂅
 
-Mafioso
+♰ Chance
 
-Caramel Arrow cookie
+♰ Wind Archer
 
-Fire spirit cookie
+♰ CoolKidd
+
+♰ Mafioso
+
+♰ Elliot
+
+Caramel Arrow Cookie
+
+♰ Fire spirit cookie
 
 Burnt Cheese Cookie
 
-Silent Salt Cookie
+♰ Silent Salt Cookie
 
-Hollyberry Cookie
+Hollyberry cookie
 
 Pure Vanilla
 
@@ -28,26 +36,26 @@ SMC
 
 Latte Cookie
 
-Hollyberry cookie
+Agar agar cookie
 
-Agar Agar cookie
+Nutmeg tiger cookie
 
-Nutmeg Tiger Cookie
+White lily cookie
 
-White Lily Cookie
+Elder Faerie cookie
 
-Elder Faerie Cookie
-
-Candy Apple Cookie
+Candy apple cookie
 
 Fig Cookie
 
 Eternal sugar cookie
 
-John Nolan ( The Rookie )
+John Nolan
 
-Bumblebee ( Transformers )
+Bumblebee
 
-Lina ( DTI )
+Lina
 
-Lana ( DTI )
+Lana
+
+˖ ࣪⊹ ִ┈┈┈┈ ♰ ┈┈┈┈ ⊹ ִֶָ𓂅
