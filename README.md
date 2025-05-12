@@ -12,6 +12,8 @@ alot of characters will not have a cross beside it
 
 ♰ Chance
 
+♰ 1X1X1X1
+
 ♰ Wind Archer
 
 ♰ CoolKidd
