@@ -10,9 +10,9 @@ alot of characters will not have a cross beside it
 
 ˖ ࣪⊹ ִ┈┈┈┈ ♰ ┈┈┈┈ ⊹ ִֶָ𓂅
 
-♰ Chance
-
 ♰ 1X1X1X1
+
+♰ Chance
 
 ♰ Wind Archer
 
