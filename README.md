@@ -10,7 +10,9 @@ alot of characters will not have a cross beside it
 
 ˖ ࣪⊹ ִ┈┈┈┈ ♰ ┈┈┈┈ ⊹ ִֶָ𓂅
 
-♰ 1X1X1X1
+♰ Guest1337
+
+♰ 1X1
 
 ♰ Mafioso
 
