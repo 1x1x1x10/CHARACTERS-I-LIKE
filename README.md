@@ -12,6 +12,8 @@ alot of characters will not have a cross beside it
 
 ♰ Guest1337
 
+♰ Jason Vorhees
+
 ♰ 1X1
 
 ♰ Mafioso
